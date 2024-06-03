@@ -16,5 +16,3 @@ Jelikož se ke mně dostalo logo vytvořené v rastrové grafice a nemělo dobr�
 © Daniel Hrečin
 daniel.dhdesigns@gmail.com
 1.6.2024
-
-Děkuji. Pokud jste s mojí prací spokojeni, budu rád za zpětnou vazbu (e-mailem), případně za budoucí spolupráci.
